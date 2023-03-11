@@ -1,0 +1,1 @@
+©TheDoggyBrad and ChatGPT by OpenAI. Contents of this novel is written by ChatGPT. ChatGPT does not cite any sources for the novel that he created, so credits to those uncited sources are given. All Rights Reserved.
